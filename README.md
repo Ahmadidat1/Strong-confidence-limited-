@@ -1,2 +1,2 @@
-# Strong-confidence-limited-
+Strong-confidence-limited-
 Shop price book apk 
